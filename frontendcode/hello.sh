@@ -1,4 +1,0 @@
-tahara
-asdasd
-a
-sda
